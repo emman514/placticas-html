@@ -49,9 +49,17 @@ ejecucion
 plactica (6)
 codigo
 
+![image](https://github.com/user-attachments/assets/9bc129b7-55da-4313-b196-3fe896d0340b)
 
 ejecucion
+
+![image](https://github.com/user-attachments/assets/8f953912-0623-4439-bc38-f6db8a50f948)
+
 placti9ca (7)
 codigo
 
+![image](https://github.com/user-attachments/assets/fe3c3de1-bac8-4422-93cd-8e624a9d62ad)
+
 ejecucion 
+
+![image](https://github.com/user-attachments/assets/a2598d5b-d9a6-4111-88f7-aaeb9d8d8d3b)
